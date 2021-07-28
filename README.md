@@ -1,4 +1,4 @@
-### Hi there, I'm Mithat - aka [voesxyz]👋
+### Hi there, I'm Mithat - aka voesxyz👋
 
 ## I'm still a student developer
 
