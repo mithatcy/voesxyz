@@ -7,7 +7,7 @@
 
 
 [twitter]: https://twitter.com/mithatcy
-[youtube]: https://youtube.com/mithat2k
+[youtube]: https://youtube.com/mithatcy
 [instagram]: https://instagram.com/mithatcy
 
 </br>
